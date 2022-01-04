@@ -2,6 +2,7 @@
 Planning to buy an Air Purifier? Check the following factors carefully before investing.
 
 With respect to purchasing an air purifier, there are various individuals who are stressed over the cost of doing accordingly. While it is significant that you can find an item that you can bear, the expense of the best air purifier in India isn’t all that you require to ponder. Indeed, not just inspecting the air purifier in general, yet its parts also. Concerning air purifier parts, you are asked to put a thought on the channels utilized.
+https://airoktech.com/three-must-check-factors-before-investing-in-air-purifiers/
 
 1. Which Air Purifier do you need- With Channels or Channel less?
 
